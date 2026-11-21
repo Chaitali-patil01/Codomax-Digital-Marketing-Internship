@@ -1,4 +1,4 @@
-Codomax Digital Growth Campaign
+*Codomax Digital Growth Campaign*
 
 30-Day Digital Marketing Internship Project
 
